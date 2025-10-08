@@ -1,1 +1,0 @@
-# mosu-privacy-policy
